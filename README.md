@@ -5,4 +5,4 @@
 A new developer of iOS apps.
 
 
-![](https://vk.com/uzumko?z=photo4597220_265354394%2Falbum4597220_0%2Frev)
+![](https://sun9-43.userapi.com/c5552/u4597220/-6/w_97b81a02.jpg)
